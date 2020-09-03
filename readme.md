@@ -1,3 +1,1 @@
-#Koosha Abbasi
-![Image of a basketball]
-(https://images-na.ssl-images-amazon.com/images/I/61VUIw7FyhL._AC_.jpg)
+![Image of a basketball](https://dks.scene7.com/is/image/GolfGalaxy/16WILUJTVLTNXXXXXBKB?qlt=70&wid=1100&fmt=webp)
